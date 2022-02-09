@@ -12,7 +12,7 @@
 
 
 ## Projetos:
-Veja os tutoriais publicados do Sigmoidal:
+
 
 * ** ** 
 * ** ** 
