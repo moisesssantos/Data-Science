@@ -15,7 +15,7 @@
 
 **Links:**
 
-[Linkedin](www.linkedin.com/in/moisesssantos)
+[Linkedin](https://www.linkedin.com/in/moisesssantos)
 
 
 
